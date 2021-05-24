@@ -1,7 +1,6 @@
 ###Proud to announce the first ever Indian crypto coin to the market in the year 2021. 👋
 
-<!--
-**IndianDigitalCoin/IndianDigitalCoin** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+
 
 Welcome to Digital Indian Crypto Currency – ICC
 
