@@ -2,13 +2,13 @@
 
 
 
-Welcome to Digital Indian Crypto Currency – ICC👏👏👏
+Welcome to Indian Digital Crypto Currency – ICC👏👏👏
 
 Proud to announce the first ever Indian crypto coin to the market in the year 2021.🕒 
 
 As we all know that we are growing to covid times and very worse situations in every city and states across India. Many of us lost some or the other family members in this pandemic😥😥😥. You know our economy is completely shattered by the pandemic. 💱
 
-Our Vision 🧐🧐🧐– Our Indian Crypto Coin (ICC) will help all merchants and businesses to stabilize the Indian economy by making use of India Crypto Coin as their payment mode. We will pump in all the money in the market to boost our Indian economy. 
+Our Vision 🧐🧐🧐– Our Indian Digital Crypto Coin (ICC) will help all merchants and businesses to stabilize the Indian economy by making use of India Crypto Coin as their payment mode. We will pump in all the money in the market to boost our Indian economy. 
 
 Idea is to improve our living standards- “Why Poor should be always poor". So, India Crypto Coin is for those who wants to make their dreams come true. Here is the opportunity you are waiting for years. Buy now or regret later. 
 
