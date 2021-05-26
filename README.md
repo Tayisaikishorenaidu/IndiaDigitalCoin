@@ -1,4 +1,4 @@
-###Proud to announce the first ever Indian crypto coin to the market in the year 2021. 👋
+###Proud to announce the students community driven first ever Indian crypto coin to the market in the year 2021. 👋
 
 
 
